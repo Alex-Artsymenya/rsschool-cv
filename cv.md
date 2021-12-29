@@ -1,5 +1,6 @@
 # __[rsschool-cv](https://github.com/Alex-Artsymenya/rsschool-cv)__
 
+![image](https://user-images.githubusercontent.com/92030921/147666992-7bb71aee-7bab-478a-8c55-7ec780c2dbc1.png)
 
 
 # **Alex Artsymenya**
